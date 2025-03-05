@@ -1,1 +1,1 @@
-# SQutes-
+# SQutes
